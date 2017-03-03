@@ -37,3 +37,17 @@ Time     | Adam     | Phil
 Friday
 
 Presentations!
+Abi
+Jake
+Ritwick
+Justin
+Andrew
+Bao
+An
+Qian
+Michelle
+Dakotah
+Kris
+Kora
+Tim
+Barrett
